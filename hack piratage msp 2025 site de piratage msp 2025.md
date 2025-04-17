@@ -1,4 +1,4 @@
-**[= GET ACCESS=](https://www.google.com/url?q=https%3A%2F%2Fappbitly.com%2FKZFrp)**
+GET ACCESS - https://t.co/a7Jz2qcoh6
 
 
-**[= GET ACCESS=](https://www.google.com/url?q=https%3A%2F%2Fappbitly.com%2FKZFrp)**
+GET ACCESS - https://t.co/a7Jz2qcoh6
